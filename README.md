@@ -11,12 +11,19 @@ i go by many names, mostly known as lennox or kaizen ! , **you can nickname me a
 my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
 
 my favourite characters are (bold ones are TOP FAVS heh.):
+
 **Sakura** (windbreaker)
+
 **Kaworu** (evangelion)
+
 nine (bfdi)
+
 **levi**, jean, eren. (aot)
+
 nagi (bluelock)
+
 **sabo** (one piece)
+
 and more!
 
 *keep in mind* im **14** . 18+ iwec.
