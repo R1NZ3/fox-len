@@ -2,17 +2,24 @@
 
 ---
 
-graphic idk when. 
+Kaizen , or lennox !
 
 --- 
 
-i go by many names, mostly known as len or kai ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
+i go by many names, mostly known as lennox or kaizen ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
 
 my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
 
-i'm *jokingly* rude and argue a lot *[[jjjjooookkkeesss...]]* , its ***mainly + mostly*** a friend!
+my favourite characters are (bold ones are TOP FAVS heh.):
+**Sakura** (windbreaker)
+**Kaworu** (evangelion)
+nine (bfdi)
+**levi**, jean, eren. (aot)
+nagi (bluelock)
+**sabo** (one piece)
+and more!
 
-*keep in mind* im **14** :(.
+*keep in mind* im **14** . 18+ iwec.
 
 c+h always allowed, even if dni, just may not say anything, i love c+h !
 
